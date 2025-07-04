@@ -17,4 +17,4 @@
 
 总之，选择一个安全、合法的平台是确保您观看“日本AV免费”内容的最佳方式。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/ss20250704/ss10 ）</span>
